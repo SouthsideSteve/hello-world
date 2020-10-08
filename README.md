@@ -2,4 +2,4 @@
 
 Hey Guys!
 
-My name's Steve and I'm new really new to all of this.
+My name's Steve and I'm really new to all of this.
